@@ -1,1 +1,1 @@
-Something big is coming..
+Scientia et Fraternitas
