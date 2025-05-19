@@ -1,1 +1,1 @@
-Scientia et Fraternitas
+
